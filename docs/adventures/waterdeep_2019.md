@@ -1,13 +1,6 @@
 # Return to Waterdeep
+Droop's Dragoons have returned to Waterdeep for another adventure.
 
-## Current Status
-- We have to go to a masked ball soon
-- There's something weird happening in the sewers & we think there is a conspiracy
-    - We found drow & LARGE goblins when hunting down Garreal Brightbristle
-    - Sanitation commissioner has been paying off the families of workers who go missing in the sewers
-    - The Waterdeep Inquirer will blow the lid off this story w/ tomorrow's edition
-
-## Notes
 - Papers are required to enter Waterdeep
     - We BS our way through and get a temporary pass. We have to go to City Hall.
     - Captain of the Guard Leas Bittertide is a female tiefling
@@ -15,7 +8,7 @@
         - She RLY RLY RLY does not like being confused for the city watch
     - Sponf convinces the gate guard that Sponf is his child using ~mAgIc~. He goes to get her papers.
 
-- We set up at <<>> Tavern
+- We set up at ??? Tavern
     - Gifford & Rotgrun go find an armourer
         - Old deaf & mute elf
         - Gifford drops his armour off for ... some purpose, will be ready in a day
@@ -41,7 +34,7 @@
         - Kira is arrested
 
 - We go to visit Kira in jail
-    - She is accused of stealing something from the <<Diamedes Family>> manor
+    - She is accused of stealing something from the Diamedes Family manor
     - Diamedes is like uh no she didn't
     - Bittertide shrugs
     - Execution or she can be released to the Druid Circle rep Raedoff to go do druid-y things if the rest of the Dragoons help w/ something
@@ -50,7 +43,7 @@
 - Droop's Dragoons are required to go into the sewers and hunt down a criminal
     - Garreal Brightbane (I wrote it as "Bririn Daag"?) is wanted for manslaughter, theft, and impersonating officials
     - Tu'rai the Bounty Hunter is assigned to us
-    - <<I have a note about the Catacombs of Yntaros but I have no idea what that means>>
+    - I have a note about the Catacombs of Yntaros but I have no idea what that means
 
 - Go into sewer
     - Wander around
