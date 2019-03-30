@@ -1,0 +1,89 @@
+# Return to Waterdeep
+
+## Current Status
+- We have to go to a masked ball soon
+- There's something weird happening in the sewers & we think there is a conspiracy
+    - We found drow & LARGE goblins when hunting down Garreal Brightbristle
+    - Sanitation commissioner has been paying off the families of workers who go missing in the sewers
+    - The Waterdeep Inquirer will blow the lid off this story w/ tomorrow's edition
+
+## Notes
+- Papers are required to enter Waterdeep
+    - We BS our way through and get a temporary pass. We have to go to City Hall.
+    - Captain of the Guard Leas Bittertide is a female tiefling
+        - We think she is an asshole
+        - She RLY RLY RLY does not like being confused for the city watch
+    - Sponf convinces the gate guard that Sponf is his child using ~mAgIc~. He goes to get her papers.
+
+- We set up at <<>> Tavern
+    - Gifford & Rotgrun go find an armourer
+        - Old deaf & mute elf
+        - Gifford drops his armour off for ... some purpose, will be ready in a day
+        - Identifies Rotgrun's Ring of +1 AC for entirely too much money
+        - Gifford is offended by this and they accidentally murder the elf
+        - Gifford raises dead and puts him right
+        - Come back in 2 days for the armour
+    - Kiera & Turu go to City Hall to try and get us papers
+        - I think they have to come back later to pick them up
+    - Diomedes ... i don't remember, goes home?
+    - Sponf waits for "Daddy" to bring papers
+
+- Everyone goes to City Hall
+    - People are acting weird
+    - City Guard shows up and boxes us in
+    - Captain Bittertide says Kira is under arrest 
+        - We ask her why
+        - She says she has orders
+        - We ask her why harder
+        - She says she has orders harder
+        - We call her a lawless cur
+        - She is not pleased but can't really argue
+        - Kira is arrested
+
+- We go to visit Kira in jail
+    - She is accused of stealing something from the <<Diamedes Family>> manor
+    - Diamedes is like uh no she didn't
+    - Bittertide shrugs
+    - Execution or she can be released to the Druid Circle rep Raedoff to go do druid-y things if the rest of the Dragoons help w/ something
+    - Bye Kira :-(
+
+- Droop's Dragoons are required to go into the sewers and hunt down a criminal
+    - Garreal Brightbane (I wrote it as "Bririn Daag"?) is wanted for manslaughter, theft, and impersonating officials
+    - Tu'rai the Bounty Hunter is assigned to us
+    - <<I have a note about the Catacombs of Yntaros but I have no idea what that means>>
+
+- Go into sewer
+    - Wander around
+    - Towards the dock/warehouse district, we find a criminal selling children
+    - We beat him up & Tu'rai takes him prisoner
+    - On the way out, we are attacked by Large Goblins and some drow
+    - RUN RUN RUN RUN RUN RUN RUN
+    - As we leave the sewer, Tu'rai catches a drow's spear mid-air
+
+- Droop's Dragoons march Brightbane through Waterdeep shouting "shame" to the wrecking ball song
+    - Delivered to Captain Leas Bittertide at the prison
+    - We tell her about the drow & Large Goblins
+    - Brightbane is scared as hell about it, something about portals ...
+    - Not sure how serious Leas is taking any of it
+
+- We go see Diamedes' uncle at the the Waterdeep Inquirer
+    - Gifford working on an article about drow and Very Big Goblins coming out of the sewers to terrorize Waterdeep
+
+- Somebody tells us to watch out for the secret lords, gives us a list of people who could be
+    - We decide to roll with it
+    - Waterdeep Sanitation Commissioner is on the list
+    - Sponf and Rotgrun (I think?) go to his office & ask if he is a secret lord of Waterdeep
+    - While he's getting all upset with us and summoning some guards, Turu is doing ninja stuff and rappels into the room to steal his documents
+    - Turu is illiterate
+        - But she can read coded languages (lols?)
+        - We stole a list of employees who have disappeared in the sewers
+
+- Investigate some of the missing persons
+    - Clim Smallborrow home was given away to Old Lady Fenwick
+    - Smallborrows moved to the rich part of town
+    - We go knock on their door and find a lady who is pretending to have always lived here
+    - Turu finds her kids and they speak like poor people
+    - Tu'rai talks with a stablekeeper servant and they're all new
+
+- Gifford turns in an article for the Waterdeep Inquirer
+    - It'll go in tomorrow's edition
