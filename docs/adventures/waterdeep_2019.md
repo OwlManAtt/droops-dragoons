@@ -8,7 +8,7 @@ Droop's Dragoons have returned to Waterdeep for another adventure.
         - She RLY RLY RLY does not like being confused for the city watch
     - Sponf convinces the gate guard that Sponf is his child using ~mAgIc~. He goes to get her papers.
 
-- We set up at ??? Tavern
+- We set up at the Fireside Newt Bar &  Tavern
     - Gifford & Rotgrun go find an armourer
         - Old deaf & mute elf
         - Gifford drops his armour off for ... some purpose, will be ready in a day
@@ -77,6 +77,89 @@ Droop's Dragoons have returned to Waterdeep for another adventure.
     - We go knock on their door and find a lady who is pretending to have always lived here
     - Turu finds her kids and they speak like poor people
     - Tu'rai talks with a stablekeeper servant and they're all new
+    - Another family did not get paid off
+        - They thought the guy was just an idiot (he wasn't on good terms w/ fam)
+        - They are PISSED they did not get money
 
 - Gifford turns in an article for the Waterdeep Inquirer
     - It'll go in tomorrow's edition
+
+- We go to Bertrude's Fine Clotheire to get masks for the ball
+    - Discount Wall of Lesser-than-Perfect Goods w/ mask selection
+    - Diamedes gets a gimp mask
+    - Rotgrun gets a bow tie
+    - Sponff gets a pinocchiot mask w/ poop on it
+    - We go back to get Droop a goblin mask
+        - We find a goblin costume
+    - Sponff gets a costume
+        - Pig
+        - Two buttholes
+        - Two breasts
+        - Large testicles
+    - Gifford wants some nice clothes to wear over his costume
+
+- Tu'rai meets Droop
+    - Droop is happy to be w/ the dragoons
+
+- We go buy Droop a tiny tuxedo
+    - Bertrude suggests the Watchful Order of Magis and Protectors (WOOMP)
+    - They have a tower
+    - We visit Blackstaff himself & ask him to enchant the tux
+    - He does it!
+    - School slogan: "Woomp. There it is. Go cats!"
+
+- TODAY IS THE MASQURADE BALL
+    - "What Do We Want: An Effective Civil Defense Force! Why Do We Want It? DROW!!!!"
+    - Names on the list of potential lords of waterdeep published:
+        - Deerstrag Dragonhand (?)
+        - Leas Bittertide's Dad (Piety Bittertide)
+        - Seafina GLorybuff (shipright)
+        - Gwenenive Duststone (merchant)
+        - Hamfo Tunnel (halfling landowner)
+        - Letholdas Mortingthol (owns taverns)
+        - Dora Bonski (wizard of WOOMP)
+        - Fabien Keenseeker (asst. of Dora Bonski)
+        - Latter Kegshaper (landowner / groundskeeper for graveyard)
+        - Serdor Kromlan (elf, bardic college head [part of WOOMP])
+        - Findel Orvanian (merchant)
+        - Peten Kromwell (head of agrigulcut for vogt)
+        - Ariel Wheatflow (head of trade shop unit)
+        - Joseph Farlight (finance dir)
+        - Pearly Drake (bank owner)
+
+- Castle Waterdeep has the ball area built into it
+    - Whole city is here
+    - TONS of city guard & watch here
+    - Pamphlets being given out to detail all the food & drink available, free masks, 
+    - We submit a question to the Lords of Waterdeep: How do they respond to today's article in the Waterdeep Inquirer?
+    - Diamedes gets up on a cart and addresses the crowd
+    - WOOMP. There it is.
+    - Inside the party courtyard, there's all kinds of garden stuff.
+    - Tu'rai tries to find a way to get up top while Sponff distracts everyone but shoving Sponffs' mask in Sponff's butt
+    - Rotgrun lifts Sponff for some reason
+    - Tu'rai analyses if they can keep everyone locked up here
+    - Sponff has terrified the guards w/ Sponff's costume.
+    - We say hello to Bittertide and ask her about her dad
+        - ???????
+        - We say we saw him in the paper
+        - She says it's a BS tabloid
+        - "A tabloid that LITERALLY EVERYONE they're inviting into the keep has read"
+        - She's VERY upset
+        - We continue to antagonize her
+        - She's a paladin of the god of martyrdom...
+    - Lots of fooooooooood!
+    - Splits into team A (agitators) and team B (stealthers)
+    - They start drawing questions from the globe of questions
+    - Sponff Suggestions the farmer that Rotgrun gave money to so he =keeps creaming "WOOMP. THERE IS IS" at the lord
+    - Rotgrun calls out "THE FSRMER IS BEINGZ DETSINED FOR ASKING A QUESTION?" after they arrest him & announce more vetting on questions
+    - Our question is selected
+        - Council wants to know why they pulled our question 4 out of 6 times 
+        - Diametes rigged it and tells them lol
+        - They want to create a civil defense force, have heard about Drow
+        - Have not heard about payoffs for sanitation workers
+        - They're not sure about paying us for the mission ...
+        - Diamedes sells the FUCK out of it w/ a 24 roll 
+        - 150 g/d per head
+        - Tu'rai continues to spy after we leave
+        - Smuggler's Cove has been gentrified
+            - It's near Waterdeep
