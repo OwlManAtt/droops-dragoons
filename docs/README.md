@@ -1,9 +1,8 @@
 # Status
-- We rigged the Masquerade's Question Lottery so we could talk to the Lords of Waterdeep
-    - They did not know about the sanitation workers going missing & getting covered up
-    - They did not yet have a plan to deal w/ the bad stuff in the sewers
-    - We convinced them to pay is a 150g/day retainer (per person?) for the Dragoons to deal w/ the problem
-    - So we should probably do that.
+- Red Masks led by Barthen the Necromancer have attacked the Masquerade and are slaughtering innocents.
+    - The Dragoons learn than Fandolin has burned to the ground.
+
+![Game State](./assets/state-20190404.jpg)
 
 - Droop now has a Tuxedo of Cleanliness thanks to WOOMP
 

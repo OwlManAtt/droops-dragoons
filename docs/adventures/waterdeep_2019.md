@@ -163,3 +163,49 @@ Droop's Dragoons have returned to Waterdeep for another adventure.
         - Tu'rai continues to spy after we leave
         - Smuggler's Cove has been gentrified
             - It's near Waterdeep
+
+- We have Droop file the paperwork to make it official
+    - Leral Silverhand signed a blank form that Droop proudly scribbles on :-)
+    - The party winds down but the Dragoons hang around and keep drinking
+    - Turu gets a lot of people together (long-nosed masks [penis] w/ flower masks, pairs sad masks w/ each other)
+        - Cross-class
+        - Pairs off 10 couples in 3 hours!
+
+- In the distance, we hear the Horn of Barthen blown
+    - Red masked dudes come in from outside, we've seen a few people wearing masks
+    - Two guards outside kill two people & lock the doors
+    - Sponff uses Fog Cloud at the enterance and it causes even more chaos
+    - Red masked people are attacking everything they can find
+
+- Gifford, Rotgrun go for the weapons locker
+    - Diomedes casts fear in 30' cone
+    - Absolute chaos reigns
+    - We obtain our weapons
+
+- 8 red masks w/ a leader head towards us
+    - "MAKE ROOM FOR THE COMMANDER"
+    - Commander is armoured (plate mail), removed his fancy clothes
+    - They have a robed dude too 
+
+- Redmask attack force emerges from the fog in a cool manner as we roll for initiative
+    - Turai crosses dance floor and engaged
+    - Sponff does jazz hands and a huge heap of big black tentacles erupt from the floor inside the smoke cloud and goes to work on the redmask attackers
+    - "EYY! IT'S A LAND KRAKEN!"
+    - Upsetting amounts of magic are being thrown around: Gifford throwing thunder around
+    - Their leader gets picked up by the tentacles
+    - Horn of Barthen sounds louder
+    - Sponff loots the weapons table and finds some Good Stuff (DM will roll it up w/ loot after)
+    - Door gets kicked opened by a masked man, he blows the horn of barthen
+        - HE IS RECOGNIZED AS BARTHEN.
+    - Barthen is a necromancer now apparently, he raises a dead city guard to serve him
+    - Turai unleases a flurry of blows
+    - Sponff's flaming tentacles enter the sub-boss' body and consume him.
+    - Ebony tentacles slay some additional red masks
+    - Gifford talks w/ Barthen
+        - Fandolin burned to the ground
+        - Barthen was made aware of the Dragoons' reputation
+            - Dimaedes points out what we're known for binding and torturing our enemies before murdering them
+        - Turai to Barthen: "None of us are here raising the dead and killing innocents"
+        - Rotgrun: "ehhhh..."
+        - Turai: "None of us here are killing that many innocents."
+        - Sponff and Gifford consider banishing Barthen
