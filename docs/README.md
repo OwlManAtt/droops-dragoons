@@ -1,6 +1,5 @@
 # Status
-- Red Masks led by Barthen the Necromancer have attacked the Masquerade and are slaughtering innocents.
-    - The Dragoons learn than Fandolin has burned to the ground.
+- Red Masks staged a coup, but Droop's Dragoons slew the Dracolich and broke their morale.
 
 ![Game State](./assets/state-20190404.jpg)
 
