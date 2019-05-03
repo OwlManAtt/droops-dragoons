@@ -209,3 +209,50 @@ Droop's Dragoons have returned to Waterdeep for another adventure.
         - Rotgrun: "ehhhh..."
         - Turai: "None of us here are killing that many innocents."
         - Sponff and Gifford consider banishing Barthen
+    - Turai asks why he's here
+        - Red Bandits want to stage a coup
+        - Horn means another threat is incoming
+    - Engaging in a philosphical debate about good and evil
+        - "What we did TO phandolin"
+    - There were two red-mask dudes w/ the Secret Lords when we met with them
+        - hm shit
+    - Something that /was/ an Ancient Dragon is coming
+        - it knows not to attack people w/ red masks
+    
+- Gifford's plan: go back to help the Lords of Waterdeep & renegotiate our contract
+    - We cross the room, thanks to Gifford using a gust of wind to make a path
+    - Lords' Room is v.quiet
+        - One person (not in a red mask) is on the ground, dead.
+            - Stout dwarf, description of Later Kegshaper was a secret lord of waterdeep. RIP.
+    - We go on top of the walls & see dragon fuckin around
+
+- Gifford & Turai both have red masks now
+
+- Dragon breathes a green cloud
+    - Viscous liquid drips from its mouth too, ew
+    - Dissolves stuff it hits
+    - A C I D
+
+- We save Open Lord Lereal
+    - Diomedes heals her
+    - THey got ambused by "two of their own" in red masks
+    - Doesn't seem open to giving us a ton of money to help w/ the undead dragon
+
+- Gifford sleet storms the dragon & knocks it out of the air
+    - Crashes into a rampart wall
+    - Droop's Dragoons send lord of waterdeep to rally her troops
+    - Droop's Dragoons charge the undead dragon.
+    - Diomedes throws javelin at dragon
+        - NOTE: PICK IT UP THO.
+    - Leas Bittertide screams and runs out
+        - Rotgrun BERATES HER and tells her to get to fuckkin work
+        - She has a very magic maul
+        - She beats the shit out of the dragon
+    - When Diomedes finally charges in, she rolls a nat 20 to avoid the prone effect from sleet storm
+    - Gifford finishes the dragon with a lightning strike.
+        - It turns to dust & the dust shoots off. It's presumably a dracolich.
+
+- In the courtyard, we see fear & gasps of *AWE*
+    - Redmasks in disbelief
+    - THey start to disengage, flee & leave wounded people behind
+    - City guard persue to cut them down
