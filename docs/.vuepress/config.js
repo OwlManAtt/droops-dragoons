@@ -6,12 +6,28 @@ module.exports = {
         sidebar: [
             '/',
             {
-                title: "Adventures",
+                title: '13th Age',
                 collapsable: false,
                 children: [
-                    'waterdeep_2019'
-                ].map(page => 'adventures/' + page)
-            }
+                    '',
+                    'characters',
+                    'adventures',
+                ].map(page => '13th-age/' + page)
+            },
+            {
+                title: "Forgotten Realms",
+                collapsable: false,
+                children: [
+                    'forgotten-realms/',
+                    {
+                        title: "Adventures",
+                        collapsable: false,
+                        children: [
+                            'waterdeep_2019'
+                        ].map(page => 'forgotten-realms/adventures/' + page),
+                    },
+                ],
+            },
         ]
     }
 }
