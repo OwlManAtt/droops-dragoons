@@ -108,6 +108,8 @@ For the next thirty years, Entilzha studied combat in all of its forms. Througho
 
 Entilzha never forgot his near-miss in Axis. For him, every crusade was personal. Those demons had sought him out and would have killed him. Others have tried since. Through his intense hatred of demonkind, he manifested powers beyond that of most warriors, and was recognized as a Paladin of the Crusader.
 
-After decades at First Triumph, Entilzha had made friends, rivals, and bitter enemies. He could learn no more from the warriors, so he decided to leave: one morning, he rose, packed his bags, and set forth with no particular destination in mind. He no longer feared being found: woe be any demons who thought they could best Entilzha.
+After decades at First Triumph, Entilzha dreamed once more of the white dragon in a tavern. It told him that he had become mighty; woe be unto any demon that thought it could best Entilzha. It advised that the time had come for the hunted to become the hunter. 
+
+Agaib, Entilzha was unsure if the white dragon dream was a true vision or just his own imagination. He decided that these dreams, real or not, had steered him well enough before. Entilzha packed what he would need for travel and rode for Axis.
 
 For the next three centuries, Entilzha has roamed the Dragon Empire. He stays in one place long enough to collect rumours of demonic activity. Covens, diabolist spies, and summoners all turn up butchered days after he quietly moved on. The Diabolist sometimes gives as good as she gets: Entilzha has narrowly escaped many "easy" marks that turned out to be a trap. An occasional crusade breaks up the monotony of daily life.
