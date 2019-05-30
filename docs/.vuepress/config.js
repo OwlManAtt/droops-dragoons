@@ -3,6 +3,9 @@ module.exports = {
     description: "A record of the Forgotten Realms' most terrifying adventuring group",
 
     themeConfig: {
+        repo: 'owlmanatt/droops-dragoons',
+        editLinks: true,
+
         sidebar: [
             '/',
             {
