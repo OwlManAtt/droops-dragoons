@@ -210,3 +210,83 @@
             - No pattern
             - Just people nobody woudl miss, 'cept us farmer folk
 
+- We're staying at The Barking Dog Inn
+    - Solon reads moon omens
+        - BIG MOON & SMOL MOON
+        - moons say evil is favorued over good today
+    - Turai looks for people up earlier than they ought be
+        - Just lots of servants buying food & farmers doing this
+    - Entilzha asks morning-drinkers about suspicious happenings
+        - 4 farmers drinking (cuz water is dangerous)
+        - Corned beef breakfasts
+        - No occultist shit here, according to farmers !
+        - They're incels (Clint & Rawn)
+        - Client :shobon: for lady lucy lue
+            - HAS A THING IN 2 DAYS
+            - Invited Rawn to the party !!!
+    
+    - Squood appears behing Rawn awkwardly
+        - Insults
+    
+    - Yoreden gets ready for battle
+
+- Lucy Lue built a manor on a hill recently
+    - New Money
+
+- Innkeep something about hiring guards at Lucy Lue's parties
+    - Turai wants a job guarding her mansion
+    - Lucy doesn't wake up til afternoon
+    - Entilzha thinks joining as a "guard" is a good idea, tags along w/ Turai
+
+- Yorden thinks investigating the property is a good idea
+    - Escape routes, windows, obv. signs of grounds being tmapered
+    - Entilzha tells Squood to keep an eye on Yorden
+    - A servant went to market for food from Lucys manor
+
+    - Turai goes to church, Entilzha stays outside
+    - Solon scouts town, joins Turai at church
+
+    - Church has a groundskeeper tending to melted candles
+        - Pastor is an elf lady
+        - Turai asks her about experience in town
+        - GREETINGS TRAVELLER
+        - Orhpan, worked whole life for this chapel, cuz NO PARENTS
+            - Townsfolk help her out :-)
+        - People enjoying themselves (outside of church) due to better harvests. Donations increasing.
+        - Turai mentiond Lucy Lue, pastor gets real salty
+            - ooo lucy lue not welcome at the church
+        - Turai asks pastor to let her know if there's any Shit going down @ Lucy Lue's
+            - Turai got a 1 on her roll for the priestess soooooo ... no trust 
+
+        - Solon tries to friendship the pastor
+            - Lucy Lue never donated to the church, actively spurns it & its gods
+            - Pastor is CONCERNED.
+            - Girl used to attend church, joined Lucy Lue's staff, spurns pastor now
+            - Girl lives in the manor, name is Linaya
+
+- Squood sees a kiln and a throwing table (the spinny thing)
+    - Yeah we're doing a ghosting thing.
+    - Squood wants to be a "comfort agent"
+    - Yorden thinks that won't work, should suggest they're associated w/ Horizon (the city) & investigate grounds
+        - or find a reason to be invited to one of her gatherings
+
+- Squood & Yorden get to meet Lucy
+    - Black hair, plump red lips
+    - Bedroom behind her has a 4 poster bed (no slaves tied to bef ^.~)
+    - Snacking on a fruit
+        - Lineya brought her the fruit
+    - Lucy tries to bribe Yorden
+        - It is not going well
+        - Yorden DOES NOT work for the achemage but does
+        - Lucy wants to bribe htwm to come to a party
+
+- Clint was attacked by Something on the road
+    - Entilzha asks if it was demonic, Yes. Entilzha charges off.
+    - Everyone elses follows too.
+
+    - There's a Dretch
+    - There's a Despoiler too (CASTER)
+    - Turai murders a dretch outright
+    - Some imps shoot jet of green blight
+
+- I am confused (dont have to attack more allies) and dazed (LOL)
