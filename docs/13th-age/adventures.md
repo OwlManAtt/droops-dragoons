@@ -290,3 +290,121 @@
     - Some imps shoot jet of green blight
 
 - I am confused (dont have to attack more allies) and dazed (LOL)
+    - Turai kicks the shit out of more demon mooks
+    - I become not dazed and confused
+    - Imps x2, despoiler x1
+    - I cut the despoiler pretty good (it's the one that confused me)
+    - Yorden bonus attack -> Entilzha, Entilzha fucks the demon up
+    - Entilzha [Smite Evil]s the despoiler, and invokes the name of the cruader when killing it
+        - Despoiler gets one last confuse off (lol entilzha 1 on crusader relation roll)
+    - Turai grabs an imp and jabs its backside
+    - Yorden fights another imp, it spits acid over at Entilzha and dazes him, but Yorden forces an immediate save & Entilzha rallies!
+    - Turai curses the imp
+    - Squood uses a tortured scream, hurts Entilzha but obliterates an imp
+
+- Team wonders what demons were doing here
+    - They let Clint escape to warn us...? There were a lot of demons !
+    - Despoiler had a pretty dagger: Dagger of Reckless Abandon, +1 to rollds, 2d6 dmg on first attack
+        - We hold it for Solon
+    - 2 potions of healing
+    - We bottle Strange Oil that's leaking out of a demon
+    - New longswords -- Clint is a blacksmith's apprentice, so maybe he was delivering them 
+
+- Clint is back at the tavern
+    - We arrive, Turai has all the longswords
+    - Entilzha asks Clint how he got away from five demons
+        - Clint asks where Harold, his mom's mule, is
+        - Entilzha nods, "Your alibi is established," and walks away.
+    - Turai asks more about Harold, who is definitely dead, and Clint starts crying
+    - Yorden suggests Lady Lacy Lue might have something to do with it, people are outraged
+
+- We head to the party
+    - Turai & Entilzha go early, since we're guards
+    - Manor isn't busy yet, takes a while for them to answer the door
+    - Maid answers, lets us in, is disinteresed in us cuz she's busy (Miss Clint)
+    - Clint (from the demon fight) is Miss Clint's son
+    - Turai offers to help in the kitchen, maid gives her a funny look & offers to fetch Lacy
+    - Calls Lineya to give us tasks
+    - Tells us to scout the ... doors ... on the grounds
+    - We ask about the event
+        - New people coming to town
+        - Lucy has a new boyfriend who is paying for anything !
+        - Games (of chance & skill), drinking
+            - Lucy Lue never loses at chess
+        - Some townsfolk may try to sneak in
+        - We ask for the guest list
+    - We will likely be at the front door
+
+- Manor
+    - Gardens in the back
+        - Newly planted
+        - Fountain
+        - Maze (not hedge-based)
+    - Receiving room
+    - Kitchen
+    - Pottery building
+
+- Socialites start showing up
+    - Lacy set the fashion: high-necked blouses, large puffy skirts
+    - Guests turning up like that
+    - Less-fancy looking townfolks turn up too
+    - Yorden & Squood show up to the party
+        - Entilzha has his eye on other people tonight.
+
+- Lacy is playing cards
+    - People are giving her gifts
+
+- Squood notices the composition of the elf population at this party is WEIRD
+    - Can tell through the psychic thing that many elfs are INFAUTATED
+    - But 3 of the 5 elfs have a different "flavour"
+
+- Squood gives Lady Lacy Lue the magic dagger we found
+    - She likes it ;)
+    - Squood feels like the INFATUATION may not be natural...
+
+- Squood finds Entilzha & tells him about the elfs
+    - Yorden says Squood is acting weird
+    - Yorden says Squood gave her the magic dagger
+    - Entilzha tells them to drop some hints about demons & see who reacts
+
+- Turai notices all the black vases we saw during the guard interview have been removed
+    - Thinks that might be weird (prince of shadows rel die)
+    - Thinks Lacy Lue putting away art is wikkit sus; she would usually want to brag
+    - Turai goes out to the kiln to smash a pot
+    - Uses billowy drapey clothing to wrap a pot & stomps it (so it won't be too loud)
+    - Finds incriptions inside (like the inside walls) of the vase (HOW THE FUCK)
+    - Turai has seen some of the characters before on charms slain demons had
+    - Goes back to look for the black vases
+
+- Entilzha has an insight
+    - The Horn of Fate must be protected, thinks about potential threats
+    - Feels bold & vulnerable (cuz it can be stolen)
+    - Feels like Lacy might have the same feeling -- bold because of the great power she has, but afraid of losing it
+
+- Yorden chats up an out-of-towner that's fucked out of her mind
+    - She has not heard about the demon attack
+    - Useless, too high
+
+- Squood harasses a 40yr old man w/ highnecked blouse
+    - Dude is kinda high
+    - His wife made his shirt
+    - Squood "you're a poor", leaves
+
+- Party is thinning out
+    - But people are not leaving through the front door...
+    - Lacy has been putting lots of stuff in the pot (cards), but not the dagger
+
+- Entilzha finds that people are going into a sitting room w/ statues (& sitting space)
+    - Disappearing behind a false wall
+    - Tells Turai to find everyone
+    - Yorden gets caught by Lacy on his way to the room !
+        - She wants him to gamble, but he wants a drink (he's particular about it)
+        - She asks him to go back to the main room, says kitchen can prepare him a drink
+        - Yorden digs in, doesn't want to leave, wants to be alone
+        - She insists he come gamble
+        - Her eyes flash, tensely smiles at Yorden, says she'll be back (charm attempt FAILED)
+        - Yorden thinks she'll be back w/ friends
+
+- Stairs are narrow and winding
+    - Candle light
+    - We smell something fleshy and gross
