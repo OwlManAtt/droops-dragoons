@@ -408,3 +408,66 @@
 - Stairs are narrow and winding
     - Candle light
     - We smell something fleshy and gross
+    - Six townsfolk "preparing" a cifcular room
+        - Pots (THE DEMON ONES) are down here in a circle
+        - Table inside the pot circle
+            - Bloody
+            - Bench next to it w insturments
+        - The maid Lineaea looks at us & asks if we have been invited
+        - Rawn is in here (from the bar)
+            - He is sharpening the sacrfificial knife
+        - Entilzha is greeted by Rawn
+            - Entilzha murders Rawn in response by drawing a sword from his cloak and slicing his throat.
+    
+- Lady Lacy Lue throws Solon down the stairs
+    - We see spider legs
+    - She shot web
+
+- Linnae grabs the dagger (per Lacy's direction to start the ritual) and murder Clint
+    - Solon cripples Linnea and kills her
+
+- Entilzha severs one of Lucy's spider legs
+    - She has 7 more
+
+- One of the guests kills Clint
+    - Solon summons forth a ghostly sword from his ring
+
+- Entlzha murders Lucy Lue
+    - Thralls fall over
+    - Solon's hands is guided by The Priestess, fixes dude w/ open chest cavity
+    
+- Eggs come out of the vase
+    - Yorden's tatoo burns, thinks he should take the egg
+    - Nobody has ever created an anatomously moving metal object
+
+- Entilzha is unable to burn the mansion down (lol nat 1 w/ priestess)
+    - Turai does it for Entilzha
+    - Burning mansion lights the town for the night
+    - Saved two (of six) townspeople
+
+- Entilzha goes back to inn for a good ngiht's sleep
+    - Solon meditates oj the roof, asking for guidence from ther Moons w/ respec tot metal eggs
+    - Turai is happy
+    - Squood wqtches Yorden caress metal agg
+    - Yorden caresses the metal egg....
+        - It consumed all the metsla in his pouch. The egg has grown...
+        - Has a gold stripe around midsection
+
+- Townsfolks are like yo wtf it burned down
+
+- Priesess messages Turai, says go to Horizon
+    - So we do that.
+
+- End up in The Mage's Sparkle, which is a brothel
+    - THE ANSWE IS HERE.
+    - Do we have an orc here
+    - 
+
+- Near elite arcane school
+    - Fucking kids with their goddamn hipster summoning gentrifying bullshit
+    - Entilzha talks a lot with student Mortha about demon physiology
+    - next to the whorehouse
+
+- Whorehouse has a half-orc woman hanging out waiting for (us)
+    - Krinly, emissary of the High Druid
+    - WE MUST STOP THE DORF KING.
