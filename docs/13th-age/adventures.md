@@ -471,3 +471,134 @@
 - Whorehouse has a half-orc woman hanging out waiting for (us)
     - Krinly, emissary of the High Druid
     - WE MUST STOP THE DORF KING.
+    - "Uh, er, I have a relic here from the priestess."
+    - 4 people from disciples of Lagos (archeology thing) w/ her
+        - They have a relic for the dwarf king
+        - She is a bodyguard, hired by priestess
+        - Don't know what it is
+        - They are whoring atm
+        - They were supposed to give us the relic though
+        - Priestess wants us to escort the Lagos dudes to Dorf King
+        - Krinly is coming as well
+    - Talk to gnome
+        - Relic of the Dark God
+        - Relic from Lagos' own bathouse?
+        - Shape is associated w/ Dark Gods
+            - They appropriated it
+            - Lagos was place of celebration
+            - Octogon
+        - Gnome drew a cool map
+            - Yorden thinks it's stupid
+        - Ruin is in Forge
+        - Squood picks up the gnome and takes back to the tavern
+
+- We are provided w/ horses and begin caravanning
+    - Squood is too big for a horse
+
+- Pass by First Triumph
+    - Turai is nervous
+
+- Entilzha asks orc for her story
+    - She's a hunter
+    - Asks why Prietess hired novice hunter to protect ... whatever it is
+    - "I'm a pretty good hunter!"
+    - Entilzha points out he is 850 years old
+    - "I'm 200! No...that's a lie"
+    - Entilzha walks away.
+
+- Squood asks the gnome about the egg!
+    - Zorigami ended past ages -- could be their egg?
+    - Machines, timekeeps of the age
+    - Spawn (or built) at beginning of an age
+    - Last dies at the end of an age
+    - Entilzha hears & is intrigued
+    - Eggs are intelligent!
+    - Sketches a zorigami
+    - Benevelont when they begin
+    - Become more hostile as the world harms them
+    - Squood: "what if you kept them safe? could they grow into being a new god?"
+        - Gnome doesn't know
+    - Info is left from 12th age
+    - Orc lord used the last Zorigami in battle at end of 12th age
+    - Entilzha notices Krinly is also listening, frowns about it
+
+- Yorden asks for everybody's name
+    - Lady Terise Redson
+        - Made the discovery!
+    - Gnome is Hubblepoof the Third
+        - Unsure if he is the third Hubblepoof, or if "the third" is last name
+    - Quiet muscle is Doctor Rorak 
+        - Most educated.
+    - Yorden sarcastically says we're indebted to priestess, asks how likely dorf king is going to help us
+        - We're showing up on his doorstep w/ this thing
+        - Yorden has not heard good things about Dorf King
+        - Terise says Dorf King is extremely interested in treasure, seeks power through artifacts
+    - Yorden thinks dorf king will rob us
+        - No, map to a structure inside his capital, dorf king already HAS the treasure!
+
+- We arrive in Axis to take on supplies for the final leg of our journey to Forge
+    - Axis built on a volcano
+    - Lots of soldiers
+
+- A few hours out of Axis, we encounter a horse & a rider
+    - OH FUCK IT'S A CENTAUR
+    - "You're in our grazing and hunting lands. For that, you owe us tribute."
+    - Krinly talks to them in another language
+    - Centaur is surprised!
+
+- We engage the centaurs
+    - Krinly gets smacked in the chest with an arrow from a centaur longbow and goes down hard
+        - Breaks arrow off, digging in pack for something
+    
+    - Centaur says something mean & goes after Yorden
+
+    - Wounded Krinly throws a crabapple @ centaur, giving Squood an opening
+        - Crit!
+        - Centaur is super mad
+
+    - Turai curses a centaur to mace itself
+        
+    - Entilzha kicked the centaur as it tried to disengage, forcing it to kneel
+        - Solon's shadowy figure teleports in front of it and stabs it in the neck, killing it
+        - Entilzha begins removing the ranger's head...
+
+    - Solon uses his ringblade to slide up a centaur
+
+    - Centaurs trips and falls when trying to attack Hubblepoof
+        - Yorden jumps on it and takes it from 100% to deat in one turn lmao
+
+    - Centaur trying to stab Solon, but reality warps and it stabs itself and dies
+        - For a moment, it sees a horse riding a human into a glue factory...
+
+    - Krinly stands up and yells at leader
+        - Leader yields
+    
+    - Turai knocks the last centaur out with a solid kick
+
+    - 200g and two +2 arrows of vulnerability!
+
+- Dr. Rorak wrote his thesis on the demontouched (tieflings)
+    - In 12th age, tieflings existed w/ minimal stigma
+    - In 13th age, they aligned w/ diabolist & were wiped out by everyone else
+    - Doesn't know why they aligned w/ diabolist, suspects it was coincidence of where they were @ start of age
+    - Some w/ more exotic skin colours in Drakkenhall
+    - Peaceful demontouched did not resist when Crusader showed up to kill them (lol)
+    - Doctor notices Turai is a demontouched
+        - Noticed shape of her skull
+
+- Solon meditates on top of the caravan
+    - Dorf king is guarded, has no ill intent
+    - Besides defensiveness.
+
+- Yorden fed his coins to the (probably Zorigami) egg.
+    - It grows slightly
+    - Nobody notices
+    - Asks the other humans what's up with the Emperor
+        - Crusader WAS under Emperor's control cuz money
+        - Crusader has been taking things into his own hands lately, more independent from Empire
+        - Maybe this prompted shift to Elf Queen & Dorf King?
+
+- Entilzha has a GGG dream (5 w/ GGG relation)
+    - Demon being held prisoner, being transported to First Triumph
+    - May be able to intercept if we hurry
+    - **RESOLVE NEXT SESSION**
