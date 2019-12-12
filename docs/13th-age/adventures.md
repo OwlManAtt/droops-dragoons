@@ -602,3 +602,577 @@
     - Demon being held prisoner, being transported to First Triumph
     - May be able to intercept if we hurry
     - **RESOLVE NEXT SESSION**
+
+- We come upon a landscape that looks like Entilzha's dream
+    - Crusader caravan coming towards us w/ cages
+    - Weird crusader symbol -- red is burgandy, first is dripping blood
+    - Sect of the Crusader called The Saved
+        - Former victims of demons, remade of foot troops of crusader & fight diabolist
+        - Just Sane Enough to follow orders
+    - Woman meets Entilzha, standing straight
+        - Insignia means quartermaster
+        - Missing 3 fingers from right hand
+        - Quartermaster Viga
+    - Emperor's troops have given them trouble
+    - Scream, unearthly roar as guard lunges @ cage
+        - Gets blasted back
+    - Demon teleports away
+
+- Solon tries to summon it back while Entilzha persues it on foot
+    - Solon summons it, shanks it w/ ringblade
+    - We killed it
+    
+- Entered underground path in Anvil after resupplying, made it to the capital of Forge
+    - Economic boom, strange tale of living machines
+    - Drow racism
+
+- Cringley is here to talk to Dorf King on behalf of high druid
+    - Upset that she was not permitted to meet w/ him, only the researchers were
+    - Cringley has heard the dorf king is trying to make living machines, upsetting balance
+
+- Yorden learns about the egg (from an icon die)
+    - Shapes changing on the egg are related to the things it consumes
+    - The eggshell moves !
+    - SUDDENLY, an eyeball looks out of the egg and blinks.
+
+- Solon ponders ... is skeptical that the dorf king could produce life from nothing
+    - Wouldn't have access to anything even close to the magic needed to create life
+
+- Crusader may doubt Entilzha because the demon escaped, and then we killed it
+    - The caravan did not like that we killed it; they wanted a prisoner.
+
+- Researchers return
+    - We ask why they got nicer rooms than we did...
+    - They spoke w/ Head of Research instead of dorf king
+    - Dwarves opened a University in the last 20 years, the Head of Research is responsible for this triumph
+
+    - Dr. Rorak needs to go to University library
+        - Turai, Entilzha, Solon go w/
+        - Dean of College has invited us to examine rare book collection
+        - They may not like Entilzha cuz racism
+        
+        - We take a steam train
+            - Lava crystals power it, the drivers get a bunch every day to power the train
+            - Risky to collect!
+            
+        - Very dwarven university: carved from rock
+            - University has 8 wings
+        
+        - Presentation later today on Living Machines
+        - Research is Applied; Dorf King needs practical things
+            - Lots of new-to-academic folks here, since Dwarven university is very distinct from overworld ones
+        
+        - Rorak talks w/ Turai...
+            - Dwarf king cooperated w/ Crusader's slaughter of the tieflings when he came through Forge
+            - Dr. is surprised Dorf King bartered for tiefling artifacts to add to his horde
+            - Suspects there may be tiefling remnants in the north
+            - Drakkenhall MAY have some tieflings...
+
+        - Entilzha finds Yonslopp's Chronicles of Demonslaying in the First Crusader
+            - Get a BG point !
+            - Documents trial & error to discover what worked vs demons (since it was the first crusade of the age), eventual fall of Paimon
+
+        - Solon learns about dwarven magic
+            - Shamanistic, uses natural stuff (rocks, carvings, runes) vs. arcane trappings
+            - Checks out the "Special Section" where Dr. Rorak is w/ Turai 
+            - Finds a book in a weird language that is Relevant to His Interests
+            - Hard to read, may be from a previous age
+                - Symbols on the edges of the hexagon are 10th or 11th age 
+            - Diagrams of rituals (?)
+
+    - Hubblepoof & Terrice want to go look at the 8-sided artifact
+        - Yorden & Squood go w/
+
+        - They also take a steam train!
+        
+        - The "research site" is the fucking market!
+        
+        - Squood seeks a corn seller
+            - Something about a body is said to a friend of the seller
+            - There's an Oracle that the King found, draped in layers and layers of cloth
+            - They think it's a ghost
+            - They are racist to Squood, Squood gets a fucking ICE BURN on them.
+
+        - Hubblepoof thinks the market is organized by what olden dwarves though the eight sides of the octogon meant
+            - Yorden looks like he has a headache.
+            - Yorden thinks that because nothing is happening, the "plan" Hubblepoof thinks they're following is meaningless
+            - Get into a heated argument over how little the octogon matters
+            - Brings it back to our crappy quarters
+                - Trash is only picked up once a week due to budgetary restrictions!
+
+        - Terrese is off shopping uselessly
+
+    - Squood wants to find info about a mechanical egg from the street urchins
+        - Squood buys an urchin a dozen candied apples
+        - Urchin scams Squood and runs off with the apples.
+
+- We meet up
+    - Solon & Yorden 'discuss' how the octogon dictates where vendors should be.
+    - Terrese says you use circles to summon demons, not octogons
+
+- Servants tell us it is the Dining Hour
+    - Throwing a nicer banquet since the researchers are here
+    - Dwarf King is present in the vast dining hall, at the high table
+    
+    - Dwarf King
+        - Big black beard.
+        - That's it.
+
+    - Cringly is here
+        - Looking at the dwarf king...
+        - Asks if we learned anything
+        - DOesn't know how to approach the Dwarf King
+        
+        - Squood notices a figured covered in clothing, not an inch of skin shown, in the Dwarf King's retunite
+            - Maybe the Oracle?
+            - Asks if Entilzha senses any demons
+            - Radiates GGG energy
+            - Squood hands Cringly a candied apple and says let's go.
+
+        - Entilzha, Squood, and Cringly approach the high table.
+            - Squood goes down on one knee and presents the DK with a candied apple.
+                - Somebody points this out to DK
+                - He is like 'who dis'
+                - Dwarf King takes the apple though.
+            
+            - Cringly has no idea what to say
+                - Begins very awkwardly, "My king. The king. Dwarf king?"
+                - High table occupants look at her like she's fuckin' nuts
+                - "High Druid sends her regards," walks away.
+                    - Dwarf King whispers to a military-looking person next to him, guards are alerted.
+                
+                - Squood whispers to the Oracle, "I know about you"
+                    - Moves its head (was still before)
+                    - Squood hides behind a curtain
+
+        - Yorden's egg begins vibrating, rando next to him notices
+            - It moves to his hand
+            - Noise in his hand (!?!)
+                - Bleeping
+            - Feeds it forks & knives
+            - Turai notices
+
+        - Rando is a shopkeeper's son, Turai accuses him of racism
+            - Yorden golfclaps when he says he stands to inherit the shop
+            - Rando's friend keeps telling him to stop, "they might attack us"
+            - Yorden years and jumps down his fucking throat
+            - They flee to another table.
+
+    - At the end of the meal, DK pronounces
+        - Disciples of Lagos are welcomed to the city
+        - Turns to Oracle, asks if they'll find anything
+            - Some people roll the eyes
+            - Oracle shakes, man's voice says "Secrets of olde, bring forth, our gold."
+
+- Yorden & Turai follow the oracle out
+    - Yorden feeds the egg bigger bits of metal from around the hall
+    - Pouch becomes swollen.
+    
+- Kringly "already cased the joint", knows where the King is
+    - And the Head of Research who allegedly brought life to machines
+    - Needs to find the thing & get rid of it
+        - "Thing"? A specific machine?
+    - Wonders if the oracle is a living machine
+        - Why else keep it under all those clothes
+    - Gives them layout of the castle (inc. king's quarters)
+
+    - Solon gets caught, Turai is still sneaking
+
+    - (Next time: finish DK portion, succeed (or fail) at doing the thing, )
+
+- Turai persues the cloaked oracle after Solon was caught
+    - Turai appears from the shadows & addresses the oracle, it is surprised
+    - Oracle ushers Turai into a closet furtively
+    - Needs rescue, thinks Turai may be here for that -- "are you not an agent of the GGG?"
+    - Turai offers to help since she's w/ Priestess
+        - Shows messanger stone of the priestess as ID
+    - Removes veil
+        - Scrawny man, scruff, unshaven, bags under his eyes
+    - Year ago, came on GGG business to make a deal w/ DK
+        - DK found out oracle got visions, wanted to keep oracle 
+    - GGG was awoken from dreams by DK's power to create golems
+        - Oracle was the trade for one golem
+        - There were 2 golems
+        - Bad part: 2nd golem disappeared
+        - Was given to DK for eternity, but they suspected Oracle stole golem
+    - DK tension w/ Emepror is because some suspect emp. stole 2nd golem
+    - One golem looked like man w/ chiseled jaw, 2nd crawled like an animal
+
+- Univeristy is pretty hoppin' for the lecture
+    - Researchers saved us some 2nd row seats
+    - Dean is presenting
+    - Crinly is here
+        - STANDS UP & RAISES HAND MID-LECTURE   
+        - Asks if the living machines had been created
+            - Dean says no, if they had DK would have taken over the continent
+
+- Yorden's egg rolls out of his bag
+    - Squood catches it
+    - Rolls up on the lecture stage w/ egg
+
+    - Squood is 8 ft tall, x2 dorf size
+    - Yorden draws his sword upon seeing this
+    - Entilzha shouts "DEMON" when Yorden pulls on Squood
+    
+    - All hell breaks loose, attendees begin to flee
+
+    - Dean trying to take egg from Squood
+        - Squood smacking everyone with long spindly arms
+    
+    - Dean gets handgagged by Turai when she tried to whisper an incantation
+    
+    - Hubblepoof tugs on Squood
+        - Egg was real :O
+
+    - Yorden sheathes his blade
+        - Entilzha does the same
+
+    - Dean is magically getting people to leave
+
+    - Hubblepoof notices podium is an octogon, NW corner means escape !
+        - "Uh, what."
+        - Hubblepoof finds a route
+
+    - Solon feels energy surge from the Dean (as the dean is being kidnapped)
+        - Turai & Dr. Rorak are levitated
+        - Holds on to the Dean
+        - Dean doesn't think they should have let people in the city
+
+        - Thieves stole the Egg from the DK?
+            - Priestess stole the golem !!!!!!
+
+        - Entilzha helps Squood keep egg from Yorden
+            - Entilzha thinks it is a Very Good Boi
+            - Doesn't think a demontouched like Yorden should has it
+
+        - Dean teleports
+            - Entilzha charges the dean
+            - Yorden orders a Charge
+        
+- Entilzha charges Dean & shield bashes her to the ground
+    - Stabs in the back of the knee to pin her down.
+    - Dean tries to make some threats
+    - Entilzha stabs her other back-of-the-knee
+    - Dean teleports away, but can't move cuz lol knees
+
+    - Solon pops his ritual down by the podium
+        - Summons us to the podium
+
+    - Turai scoops up the dean & returns to Solon's ritual w/ her
+
+    - Solon drags us through some dimension nobody has ever been to before
+        - Some not great debuffs happen
+        - For 2 days, Entilzha can rally a 2nd time in battle
+        - Dean is hit with a gust of wind, whenever she opens mouth wind comes out
+
+- We emerge in a bog (with a great SQUISH)
+    - Smells like sulfur
+    - Hubblepoof scrambles to surface of water
+    - Solon menaces the Dean
+        - Winds of justice, Dean can't speak, etc
+
+    - Turai tells us about the golems
+
+- Egg can be a unicycle now to boop alongside us
+    - Scales can flutter out
+
+- We find a smol squishy muddy island to regroup upon
+    - Light source (crude, maybe a fire) to the NE
+    - We head for it
+    - Hut w/ a candle in the window, hut is on 10ft stilts
+    - Large plants
+
+- Turai approaches hut, Large Plants lunge
+    - The plants spit some flying things out at Turai
+    - Cringley yells "PIXIES"
+    - They have sticks and bows
+    - Turai does some fire-punching and kills all the pixie mooks
+    - A hag appears!
+    - Solon & Squood get evil eye'd
+    - Entilzha takes a swing at a stilt holding the house up
+        - Hag looks offended
+    - Turai murders the hag
+        - Death curse: "You should have left me whole and alive, for now, you cannot count above five."
+
+- We enter the hag's home
+    - There is a cat
+    - Orcskin skirt & bone flute taken by Squood
+    - Solon finds a magic book written in a secret divine language.
+        - Learns a 3rd level bard spell!
+    - Yorden finds Imperial Armour forged with dragonflame
+
+- Turai and Terease take The Dean to pee
+    - They wonder if they can uncurse the Dean
+    - Dean is OK w/ Terease trying to decurse
+    - Wind decreases, but still wind.
+
+- Sleep, wake up.
+    - Hubblepoof wakes everyone up cuz they found something
+    - The ceiling is an octogon, god damnit.
+    - Demombone! 
+        - Entilzha identifies it as a cambian bone
+        - Assassins that work for the highest bidder
+        - V. Demonic
+        - Their sword grows longer with each successful assassinastion
+        - Has some kinda magic shit, beads and strings
+            - Points us NE like a weird compass
+        - Entilzha is into it
+
+- We head NE
+    - Terease is not into being in a swamp
+    - Dean is able to make noises now
+    - Demonbone points towards a steep crater
+    - It's a hellhole.
+
+- Entilzha takes a look into the hellhole
+    - Black carapace walls, gates fanged w/ teeth of hellbeasts
+    - Torture palaces
+    - Lots of demons
+
+- Dean manages to call us idiots
+    - Turai calls her a hypocrite
+    - They talk about the living machines
+    - Dorf Kingdom had two living machines, could not figure out how to recreate them, wanted people to study & figure out how to make more
+    - DK does not understand how they work
+
+- Interrogating the Dean
+    - Dean says golems became alive
+    - Hubblepoof points out the egg could be a Zoragami, hearlding the end
+    - Dean modeled first golem after a man w/ a porcalin face, gave it life <secret>
+    - Won't tell us how, afraid of something
+    - Entilzha threatens to murder the Dean, thinks that is a better than the outcome for telling
+
+- Dean will stay w/ us (lol) to oversee the growth of the egg
+    - Researchers are kinda like "mmm ok"
+    - Dean says we are not in the Diabolists' pile of hellholes, instead in The Fens near the Elf Queen's woods
+        - Doesn't want to tell EQ about the egg
+
+- Cringley will stay w/ us as long as we'll have her
+    - Wants to keep an eye on the Egg sitch
+
+- We are the Dregg-oons!
+
+- We decide to head for the city of Concord
+    - Entilzha worried the Elf Queen may be pissed that we're dragging this egg near her woods w/out talking to her
+
+- Next time:
+    - Go to babby store for an Egg Stroller
+
+- We observe a time-slowing effect above the egg.
+
+- Entilzha asks Dean about Zorigami
+    - Dean studied texts about them to invent the golems
+    - They adjust to become machines of war, recombine w/ fallen bodies
+    - Dean is pretty cavilier about accidentally the Ara
+
+- Rorak and Hubblepoof have a romance
+
+- We reach Concord
+    - Researchers decide to head back to the priestess' city, pay is 2500g
+    - Solon bullshits the guards and we get in
+    - The Dean asks the guards where the dwarven embassy is, gets directions
+    - Entilzha intimidates the shit out of The Dean after pulling that bullshit, quashes her attempt to steal the egg and flee by reminding her that knees are a privilege, not a right.
+
+- We head for the Oppulentastica, an inn.
+    - It's a run-down dump. We don't go here.
+
+- We head to the Lost Palace, the very best inn in the world.
+    - Imperial corruption accidentally paid out the ass to build this inn, it's Super Nice
+    - Lots of drow hang out here
+
+- Squood goes shopping w/ Yorden for an EGG STROLLER.
+    - Lots of wood strollers, Yorden wants the sturdiest things
+    
+    - While shopping, Squood sees a sign for a dating app
+        - Yorden spins three times and claps.
+        - Man comes out from behind the poster, is confused when they don't want dating
+        - Gives them a yellow not-quite-magic potion
+        - Squood drinks
+
+- Turai spots one of her former marks, somebody she stabbed an eye out of when taking her in
+    - Cringley blocks the exit
+    - Turai interrogates her, finds out she's working for the Prince of Shadows
+    - Prince meeting w an elf princess, the lady is delivering a package w/ a finely crafted engagement ring
+    - Delivery to somebody purple near the Squid Fountain by the Blind Owl
+
+- The Dean tries to convince Entilzha to help her escape w/ egg
+    - Nope.
+
+- Egg eats the box springs
+
+- Squood is now purple.
+    - The potion Squood drank changed his skin
+
+    - We pay the inn to keep the Dean locked in a room while we go out
+
+- Turai's associate hands Squood the package w/ the ring
+    - Woman in a cloak approaches, touches her arm
+    - "You're an elf? I thought you would be a human..."
+    - Lovely looking elf woman
+
+- Decide to leave Dean here
+
+- The Dean is in front of the inn w/ Cringley in chains and twenty dwarven guards
+    - We run for it
+    - Feel a weird tingling from the inn -- another cult thing?
+
+- PARTY NAME: Eggcellent Eggsitterz
+
+- We all use our backgrounds to exit the city
+    - Turai lets some folks out of the stockades to confuse the dwarves
+    - Entilzha ducks into an alley, clotheslines a dwarf, and then knifes the fucker
+    - Squood does magic but abandons The Egg, Solon grabs it
+    - We escape Concord w/ the Egg and the Princess
+
+- Princess leads us to a city on the edge of the woods
+    - Plan to marry her off happened Very Fast -- matter of days (unusual for elfs)
+    - We end up staying in a hamlet overnight
+
+- Princess takes us into the woods, we get jumped
+    - Three-headed black dragon backed up by some spiders
+    - Zulant the Black Dragon introduces itself
+    - Dragon acid breathes us
+        - Acid breath turns into scorpions.
+    - Turai body slams the dragon to death.
+        - DM: "You weren't supposed to kill the dragon. But you do."
+
+    - The Egg shoots a fork at the black dragon moments after it dies.
+        - Solon congratulates the egg for killing the dragon
+        - It rains magic items!
+        - Squood gets a weird gear from the dragon's anus, feeds it to the egg
+            - IT WAS A FUCKING ZORIGAMI
+            - THE EGG ATE THE FUCKING ZORIGAMI.
+            - The egg has arms.
+
+- Princess is like "wow ok nice"
+    - Squood is more annoyed
+    
+    - Princess theorizes on where the black dragon came from
+    - Elf court has a green dragon (the three were once the four) under it
+    - Thinks maybe the Three were trying to recover the Green dragon
+
+- We find the Court of Elves
+    - Guards say we missed the monthly petition day
+    - Welcome us to stay
+    - Squood isn't purple anymore
+    - Elves are staring at us cuz Yoren is red
+
+    - Party huddles to discuss our plan
+        - Decide to tell Elf Queen the diabolist fucked w/ her deal
+        - Try to get her pissed at the diabolist
+        - Offer to help get even
+        - Wants info the Prince of Shadows was gunna give her for the wife
+
+    - We tell the princess we cool, won't sell her out
+        - She leads us up the hill to her mom
+        
+    - Turai notices an octogon
+        - Crystal octogon
+        - THE WHOLE CRYSTAL STRUCTURE IS AN OCTOGON
+
+- Elf Queen comes out from behind her throne when the throne guard rings a bell
+    - (she has living quarters behind it)
+    
+    - Yorden shouts about 2nd daughter
+    - Court goes deadly quiet
+    - "Princess" steps forward, turns into the fucking Prince of Shadows
+
+    - Prince goes up the throne stairs
+        - Entilzha pulls a sword, challenges him
+    
+    - Squood gropes the prince of shadows
+    
+    - Prince asks for a private audience, Queen makes another path for them to go off and sidebar
+    - Real princess says we'll find out about 2nd daughter soon
+    - We follow the Prince & Queen
+
+    - There *is* a 2nd princess
+        - But she's ugly
+        - So they don't let her out
+            - Literally, elf queen put her in a coma.
+
+    - Prince of Shadows wants the ugly princess for an end-of-age ritual
+        - Entilzha: "....ah."
+
+    - The icons conduct a ritual, betting on what races/powers will be important in the next age
+        - Decides the fate of all the races
+        - Ex: In this age, no tieflings left & no living machines
+        - They decided this last age
+
+    - Ritual happens in the Queen's Wood
+        - this is why elves are consitently one of the three major powers
+        - Turai asks why it happens here
+            - Place of power
+            - Everyone thinks it needs to be here
+            - Queen is OK with this
+
+    - Elf queen accidentally made the orcs
+    
+    - She mentions zorigami
+        - We al cough
+
+    - Archmage put the zorigami into play
+        - They would signal to the other icons when it was time for the ritual
+        - Near the end of the age
+
+    - Zorigami are crucial to the ritual
+        - Representing a living machine race, which can make them more powerful in next age
+        - Alt: one race always gets screwed, gets sacrified for the others
+        - They usually sacrifice the living machines
+
+- Entilzha makes an (intenral) decision to defend the egg
+
+- Ugly princess might be an orc
+
+- Prince of Shadows says they can avoid the sacrifice
+    - Elf queen says not possible
+    - They argue about it
+
+- Squood is still groping the prince of shadows
+    - He's just rolling with it
+
+- Queen says this isn't something that needs to be discussed anyway, zorigami haven't appeared
+    - Prince of Shadows gives us a pointed look
+    - Entilzha sighs
+    - "Your majesty, may I present for your pleasure ..."
+    - Pulls back the blanket in the stroller, egg hops up and toots
+
+    - Elf Queen notices Solon
+        - "You brought me the egg!"
+    - Queen had dispatched Solon to destroy the Zorigami
+    - Solon is fuckin pissed at her
+    - Solon will not destroy the egg
+
+    - Solon: "I learned much from the diabolist..."
+
+    - The Elf Queen is surprised when Solon says he died for her
+        - "I understand. That explains a lot."
+        - She fixes his memory.
+
+- Princess gave us some tea
+    - We get kinda high
+    
+    - Turai detects magic and finds out its magic weed
+
+- Can select 8 races to prosper
+    - But 12 icons ...
+    - Age is all about positioning yourself to have the $power$ to be in the ritual
+
+- Ask when the ritual is
+    - Within a [elf] lifetime
+
+- Internal State:
+    - Supports Elf Queen, wants the ritual to proceed so elves will deffo be a big power in the next age
+    - Will stay w/ Egg to protect it so we can sacrifice it
+    - Wants it to end.
+    - Also super OK w/ letting the dwarves be genocided in the ritual cuz FUCK the dean
+
+- Solon goes off on Yorden for saying he's alone
+    - Turai shows her horns
+    - Entilzha freaks the fuck out
+
+- Scene is ended
+    - We get a nice tree house
+
+- Going to stay in the Court for a month
+    - Whatever resources we need to decide what to do w/ ritual
