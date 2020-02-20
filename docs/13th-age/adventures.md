@@ -1176,3 +1176,88 @@
 
 - Going to stay in the Court for a month
     - Whatever resources we need to decide what to do w/ ritual
+
+- Entilzha during the downtime
+    - Finds a trainer to learn some Skills of a Bodyguard
+    - Also checks in w/ network for reports of demonic activity
+
+- Elf Queen tells us that The Three have gone rogue
+    - Wants us to take care of them
+    - Offers to arm us
+    - Deliver message to the Blue commanding them to back down
+    - Otherwise...
+
+    - Unclear when the ritual will be, The Three have fucked everything up
+        - ritual needs dragon breathe
+
+- (ooc: good taco bar, also good wine)
+
+- I have a dream
+    - From GGG
+    - I see a passage hidden in a forest
+    - That leads to a dragon.
+
+    - A gold dragon is pearched on a giant horde of treasure
+    - At the foot of the horde, the egg is eating everything
+
+    - When I awaken, I realized
+    - the silvery purpley of the leaves means that that forest
+    - is probably the one we're in right now
+
+    - I should ask a local ranger if any dragons are in the wood
+    - I do that.
+        - I get a marked map
+
+- Entilzha, Squood, and Turai take the egg to the cave.
+    - Solon is doing research on the egg & the Three, also ends up w/ directions to our cave
+        - Grabs Yorden 
+
+- At the cave...
+    - Cave is a crack in the cliffside
+    - Enterance seems unused, ALMOST too small for a dragon to fit...
+
+    - Turai notices nothing has used this passage.
+    - Entilzha seals cave enterance against demons and undead.
+
+    - Small treasure pile
+    - Gold dragon sitting apon the pile
+    - Some light coming down from a hole in the ceiling, where the dragon probs enters/exits
+        - Turai determines this dragon has been asleep for some time.
+
+    - Entilzha approached the dragon, revealing the horn to it
+    - Unfortunately, the horde is actually DREAM DRUGZ
+
+    - Nightmare time!
+
+    - Dream of an ogre running away from some human riders
+        - Minotaurs, lamisu
+        - Also an ogre mage knight
+
+    - As the last enemy dies, we each imagine clawing it down with our claws
+    - The dream has a LARGE VOICE: "I know not how you came into this dream, but if you help me slay my demons & traumas, the reward to you will be great. My name is Zephalarius, and I have been trapped in sleep too long. Help me quell an old foe next; a green dragon, who for many centuries has chased after me. If you can change the memory to diplomacy, it'd be gr8."
+
+- Find some green psuedo-dragons at a waterfall
+    - Large green dragon looks at us from atop
+
+    - Rivalry between the gold & green dragons started over a lover
+        - (psychic shit)
+        - Evil sorcerer Leffen cursed both dragons
+        - This is the first time they've seen each other since the sorcerer died & curse lifted
+        - GGG does not know that we're here: Zeph is hiding the meeting from the GGG
+
+    - Two dragons wished the opposites
+
+    - Green dragon is Golintian
+    - Old ones (the three) found out about the deformed babies, they'd erase all our shit from history
+    - We offer to help care for the deformed babies.
+    - We see the young face of ... THE ARCHEMAGE. Who is Leffen.
+    
+    - FIght some demons rq
+        - GGG reveals that he brearhes live into the zorigami
+        - triggering the end of the age.
+        - Will not breathe on the zorigami and trigger the end this time.
+
+- We goin to Drakkenhall bitches
+    - Level 7 time
+
+- 
